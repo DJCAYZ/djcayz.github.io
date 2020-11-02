@@ -1,3 +1,6 @@
 ## DJCAYZ's Project Site
 
-idk LOL
+Active projects:
+
+Social media:
+[Twitter](https://twitter.com/DJCAYZ)
